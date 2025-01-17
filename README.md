@@ -10,7 +10,7 @@
 
 - 💬 Ask me about **C#, Swift, Python, Tools, ...**
 
-- 📫 How to reach me **######wind@gmail.com**
+- 📫 How to reach me **quyen.eth@icloud.com**
 
 - ⚡ Fun fact **Play game**
 
